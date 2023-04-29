@@ -1,1 +1,1 @@
-It feels good to try again.
+Started to code today, so cool
